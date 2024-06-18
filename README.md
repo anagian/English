@@ -69,6 +69,7 @@
 •	Ψηφιακά πολυμεσικά και πολυτροπικά κείμενα (βίντεο)
 https://safeshare.tv/x/ss5ea80528210a2#
 https://safeshare.tv/x/ss5ea805ba4b4b3#
+https://cutt.ly/0yPPnQo
 •	Ψηφιακό κείμενο (άρθρο) https://cutt.ly/UyPPlKg
 •	Ψηφιακό Εργαλείο Mentimeter https://www.mentimeter.com/ (δραστηριότητα για γνωστική και ψυχολογική προετοιμασία των μαθητών/τριών και την διασκεδαστική δημιουργία συννεφόλεξων με στόχο την δημιουργική εμπέδωση της γνώσης))
 •	Ψηφιακό συνεργατικό εργαλείο συγγραφής  google jamboard https://jamboard.google.com/ (ομαδική αναζήτηση και δημιουργία συνεργατικών σημειώσεων για την εκπόνηση της ομαδικής εργασίας) 
@@ -77,6 +78,8 @@ https://safeshare.tv/x/ss5ea805ba4b4b3#
 https://www.collinsdictionary.com/
 http://www.visualdictionaryonline.com/index.php
 •	Ψηφιακό εργαλείο canva https://www.canva.com (δημιουργία συνεργατικού πληροφοριογραφήματος)
+Ψηφιακό εργαλείο google forms 3https://forms.gle/RPsfQAJpX9W5cNbs7
+Ψηφιακό εργαλείο Kahoot https://create.kahoot.it/share/non-verbal-communication-in-a-job-interview/21e2017e-6955-4b82-9571-99f44f5f631e
 
 
 
