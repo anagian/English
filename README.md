@@ -71,15 +71,17 @@ https://safeshare.tv/x/ss5ea80528210a2#
 https://safeshare.tv/x/ss5ea805ba4b4b3#
 https://cutt.ly/0yPPnQo
 •	Ψηφιακό κείμενο (άρθρο) https://cutt.ly/UyPPlKg
-•	Ψηφιακό Εργαλείο Mentimeter https://www.mentimeter.com/ (δραστηριότητα για γνωστική και ψυχολογική προετοιμασία των μαθητών/τριών και την διασκεδαστική δημιουργία συννεφόλεξων με στόχο την δημιουργική εμπέδωση της γνώσης))
+•	Ψηφιακό Εργαλείο Mentimeter https://www.mentimeter.com/ (δραστηριότητα για γνωστική και ψυχολογική προετοιμασία των μαθητών/τριών και την διασκεδαστική δημιουργία συννεφόλεξων με στόχο την δημιουργική εμπέδωση της γνώσης)) https://www.mentimeter.com/app/presentation/ed27f89c295f7107bf9a0172d5d54ccb/first/edit
 •	Ψηφιακό συνεργατικό εργαλείο συγγραφής  google jamboard https://jamboard.google.com/ (ομαδική αναζήτηση και δημιουργία συνεργατικών σημειώσεων για την εκπόνηση της ομαδικής εργασίας) 
 της ομαδικής εργασίας) 
 •	Ψηφιακά λεξικά
 https://www.collinsdictionary.com/
 http://www.visualdictionaryonline.com/index.php
 •	Ψηφιακό εργαλείο canva https://www.canva.com (δημιουργία συνεργατικού πληροφοριογραφήματος)
-Ψηφιακό εργαλείο google forms 3https://forms.gle/RPsfQAJpX9W5cNbs7
+Ψηφιακό εργαλείο google forms https://forms.gle/RPsfQAJpX9W5cNbs7
 Ψηφιακό εργαλείο Kahoot https://create.kahoot.it/share/non-verbal-communication-in-a-job-interview/21e2017e-6955-4b82-9571-99f44f5f631e
+Ψηφιακό εργαλείο genailly (παραγόμενο υλικό μαθητών) https://view.genially.com/5ec0c6ea32a04c0d96b733b9/vertical-infographic-top-5-tips-for-job-interview-success
+                                                     https://view.genially.com/6342ff5da1263000161764e2/vertical-infographic-copy-copy-top-5-tips-for-job-interview-success 
 
 
 
